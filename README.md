@@ -1,7 +1,7 @@
 - ✧ Hi, I'm freak-  ☆
 ![image](https://github.com/user-attachments/assets/16a66d9f-028a-4501-a0e2-4656e2582efd)
 - ✶⋆.˚ artist (idk) (*´꒳`*) 
-
+![Screenshot 2025-06-23 224930](https://github.com/user-attachments/assets/2d13498a-16ca-473b-bb1a-854503ed8944)
 - ִ ࣪𖤐 fandom i joined: FFVII, ULTRAKILL, Marvel (especially deadpool or spiderman), Silent hill II, The boys, COD, mouthwashing, JJBA, DB...
 ![image](https://github.com/user-attachments/assets/24dbe6a1-2547-4329-bbf8-bf68cce58f2b)
 - 💞️ fav animals: manta ray, shark and orange kitty
